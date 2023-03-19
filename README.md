@@ -1,2 +1,2 @@
-# braindeadafrikan.github.io
-Collection of thoughts on the topic of the African brain which is so whitewashed, that it is virtually dead
+# Braindead African
+Collection of thoughts mourning the dead state of the African's brain
